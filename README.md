@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning more from the technical side of this decentralized blockchain world in order to restore good sense in human beings! 
 - 🌱 I’m currently learning all things blockchain as I engage on several projects & levels! 
 - 💞️ I’m looking to collaborate on content for building a life logic podcast or tutorial for young & old minds!
-- 📫 How to reach me atrainxrp@protonmail.com instagrams AtrainLive fix me on FB Aaron Veillette (Atrain)
+- 📫 How to reach me atrainxrp@protonmail.com instagrams AtrainLive find me on FB Aaron Veillette (Atrain)
 
 <!---
 AtrainLive/AtrainLive is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
